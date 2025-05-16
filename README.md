@@ -1,2 +1,0 @@
-# Thamizharasi-
-Thamizh
